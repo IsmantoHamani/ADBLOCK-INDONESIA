@@ -1,0 +1,2 @@
+# ADBLOCK-INDONESIA
+Penghapusan Iklan
